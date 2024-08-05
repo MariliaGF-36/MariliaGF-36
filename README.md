@@ -6,5 +6,5 @@ _Marília_ H. ⭐
 
 •learning with [alura](https://www.alura.com.br)
 
-•compartilhando my alura projects
+•sharingmy alura projects
 
