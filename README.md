@@ -2,6 +2,9 @@
 
 _Marília_ H. ⭐ 
 
-studying at Oscarlina
+•studying at Oscarlina
 
-learning with [alura](https://www.alura.com.br)
+•learning with [alura](https://www.alura.com.br)
+
+•shared my alura projects
+
