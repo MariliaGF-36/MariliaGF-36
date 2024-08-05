@@ -1,6 +1,5 @@
-## Hi there, welcome 
+## Hi there, welcome to my profile
 
 _Marília_ H. ⭐
-777|📖🐚🔎🎧
-2008,
+ 
 studying at Oscarlina
